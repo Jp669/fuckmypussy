@@ -1,2 +1,2 @@
-# fuckmypussy
+# fuck
 Fun
